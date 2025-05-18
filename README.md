@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @skyytrue
-- 👀 I’m interested in Python programming
+- 👀 I’m interested in Python, Java programming
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...8707 552 8393 
